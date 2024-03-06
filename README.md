@@ -1,1 +1,1 @@
-### Repositório com repostas para a vaga de Estágio
+### Repositório com respostas para a vaga de Estágio da empres Target Sistemas.
